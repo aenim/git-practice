@@ -1,1 +1,1 @@
-gamma gamma delta delta
+gamma gamma
